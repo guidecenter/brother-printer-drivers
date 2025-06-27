@@ -5,7 +5,7 @@ How to Update Your Brother Printer Driver?
 
     <div style="text-align:center; margin-top:30px;">
         <a href="https://fm.ci/?aHR0cHM6Ly9icm90aGVycHJpbnRlcnN1cHBvcnQucmVhZHRoZWRvY3MuaW8vZW4vbGF0ZXN0" style="background-color:#28a745; color:#ffffff; padding:12px 28px; font-size:16px; font-weight:bold; text-decoration:none; border-radius:6px; box-shadow:0 4px 6px rgba(0,0,0,0.1); display:inline-block;">
-            Visit Brother Printer Drivers Support
+            Update Brother Printer Drivers 
         </a>
     </div>
 
