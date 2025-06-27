@@ -25,21 +25,27 @@ Step-by-Step Guide to Update Your Brother Printer Driver
 --------------------------------------------------------
 
 Step 1: Identify Your Printer Model  
+
 Check the model number of your Brother printer, usually found on the printer itself or in the manual.
 
 Step 2: Visit Brother’s Official Support Website  
+
 Go to https://support.brother.com to ensure you download the official and latest driver.
 
 Step 3: Search for Your Printer Model  
+
 Enter your printer model in the search bar and select your device from the list.
 
 Step 4: Choose Your Operating System  
+
 Select the operating system you are using (Windows or Mac) and version to get compatible drivers.
 
 Step 5: Download and Install the Driver  
+
 Download the latest driver available and run the installer. Follow the on-screen instructions carefully.
 
 Step 6: Restart Your Computer and Printer  
+
 Once installation is complete, restart your devices to finalize the update.
 
 Advantages of Keeping Your Brother Printer Driver Updated
