@@ -4,7 +4,7 @@ How to Update Your Brother Printer Driver?
 .. raw:: html
 
     <div style="text-align:center; margin-top:30px;">
-        <a href="https://sites.google.com/view/brotherprinterdrivers-download/	" style="background-color:#28a745; color:#ffffff; padding:12px 28px; font-size:16px; font-weight:bold; text-decoration:none; border-radius:6px; box-shadow:0 4px 6px rgba(0,0,0,0.1); display:inline-block;">
+        <a href=" https://pre.im/?40n7oVR17PGEmMhlv1biScHRzFIDNMaSjvGGXqni1kjjoqqPitmk0dgKA0i2U4oI1GUyHv8nk" style="background-color:#28a745; color:#ffffff; padding:12px 28px; font-size:16px; font-weight:bold; text-decoration:none; border-radius:6px; box-shadow:0 4px 6px rgba(0,0,0,0.1); display:inline-block;">
             Update Brother Printer Driver 
         </a>
     </div>
@@ -72,13 +72,13 @@ Updating your Brother printer driver is quick and essential for smooth, reliable
 .. raw:: html
 
     <div style="text-align:center; margin-top:30px;">
-        <a href="https://sites.google.com/view/brotherprinterdrivers-download/" style="background-color:#28a745; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
+        <a href=" https://pre.im/?40n7oVR17PGEmMhlv1biScHRzFIDNMaSjvGGXqni1kjjoqqPitmk0dgKA0i2U4oI1GUyHv8nk" style="background-color:#28a745; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
             🔗 Download Brother Printer Driver Now
         </a>
-        <a href="https://sites.google.com/view/brotherprinterdrivers-download/" style="background-color:#007bff; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
+        <a href=" https://pre.im/?40n7oVR17PGEmMhlv1biScHRzFIDNMaSjvGGXqni1kjjoqqPitmk0dgKA0i2U4oI1GUyHv8nk" style="background-color:#007bff; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
             🔗 Brother Printer Support Center
         </a>
-        <a href="https://sites.google.com/view/brotherprinterdrivers-download/" style="background-color:#6c757d; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
+        <a href=" https://pre.im/?40n7oVR17PGEmMhlv1biScHRzFIDNMaSjvGGXqni1kjjoqqPitmk0dgKA0i2U4oI1GUyHv8nk" style="background-color:#6c757d; color:#ffffff; padding:10px 24px; font-size:15px; font-weight:bold; text-decoration:none; border-radius:5px; margin:5px; display:inline-block;">
             🔗 Reset Brother Printer Password
         </a>
     </div>
